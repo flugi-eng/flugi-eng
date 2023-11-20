@@ -1,8 +1,10 @@
-## 👋 Hey there, I'm Adrian!
+## 👋 Hey there, I'm Adrian [🇩🇪]!
 
 🎓 16 years old | Newbie in the coding world
 
-💻 Currently diving into the world of insert programming languages or technologies
+
+
+💻 Currently diving into the world of insert programming languages and technologies
 
 🌱 Always eager to learn. Let's build something awesome together!
 
