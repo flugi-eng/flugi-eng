@@ -4,7 +4,7 @@
 
 💻 Currently diving into the world of insert programming languages or technologies
 
-🌱 Always eager to learn and collaborate with fellow coders. Let's build something awesome together!
+🌱 Always eager to learn. Let's build something awesome together!
 
 📫 Connect with me on [Discord] - [.flugi]
 
