@@ -8,8 +8,8 @@
 
 🌱 Always eager to learn. Let's build something awesome together!
 
-📫 Connect with me on [Discord] - [.flugi]
+📫 Connect with me on Discord - .flugi
 
-⚡ Fun fact: [I was always good at math in school even though I didn't study it or put any effort into it😄]
+⚡ Fun fact: I was always good at math in school even though I didn't study it or put any effort into it
 
 
